@@ -1,2 +1,0 @@
-# winpritam
-aam
